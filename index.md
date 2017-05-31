@@ -71,6 +71,7 @@ Ils devrons placer le drapeau de leur pays d'origin sous la 1ere etoile
 # Article VIII
 Le velours peut comporter :
 1. Les insignes
+Singe : conneries certifiés
 2. Votre devise
 3. les symboles
 
